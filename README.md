@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Titlecan
-- 👀 I’m interested in Anything...
+- 👀 I’m interested in Anything...?
 - 🌱 I’m currently learning ...
-- 📫 titlecan@mail.ru
+- 📫 a@titlecan.cn
